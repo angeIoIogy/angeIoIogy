@@ -1,1 +1,12 @@
-[i.](https://rentry.co/souIss)
+***
+***
+-> %#7983a6% ﹅ %% ‎ ‎  ‎ ‎ ![](https://64.media.tumblr.com/8dff9d8ba4bc6efb14c9009c532e5255/a61a02234809a08a-dd/s75x75_c1/83e5271af3c431ba9c256e1a0b19ba5972e86dce.gifv)  ‎ ‎ %#7983a6%*.co / souIss* %%<-
+![](https://64.media.tumblr.com/b476d59d444cce536d0e2d5c8ea9ab9b/e5cde90135c8fe90-33/s400x600/0928cd861cb02306c66f0ccd0c0636cf0b13ff69.pnj)
+![](https://media.discordapp.net/attachments/1128345148695269499/1298563697806938133/row-1-column-1.png?ex=671a052f&is=6718b3af&hm=fc3ede3da69b2c23667f05f0303b0aa9340b4a1746b4fe0658599d4e6e9305b1&=&format=webp&quality=lossless&width=300&height=100) %#7983a6%  ‎ ‎ ୨ৎ  *in light mode ◟⊹*%% ![](https://64.media.tumblr.com/fbf8b1776bb7812cf2041430cabdabc1/334a52adf4ce2435-fe/s75x75_c1/5f2f6b8780b450981d3818c260cf2dba83750bfb.gifv) 
+![](https://media.discordapp.net/attachments/1128345148695269499/1298563697525915658/row-2-column-1.png?ex=671a052f&is=6718b3af&hm=2f148c66df1605765905c8d868047e3c934be7a39ea0310b2dcc98ff9f8bed7d&=&format=webp&quality=lossless&width=300&height=99)  ‎ ‎ %#7983a6% soul ou lucxien   ‎   they ✦ xi %%
+![](https://media.discordapp.net/attachments/1128345148695269499/1298563697123266602/row-3-column-1.png?ex=671a052f&is=6718b3af&hm=3e87c7cd723400506d2931284a9af69098d97ae979cfdf4beb39bf398eade7c7&=&format=webp&quality=lossless&width=300&height=100) ‎  ‎ %#7983a6% sixtheen %% ![](https://64.media.tumblr.com/3f6b2648955479a5bd65088cce6507c8/c82d8a07614a5c27-6d/s75x75_c1/ed54e76bbe7102c134663475775023a92efc2708.gifv) %#7983a6%  english ⊹ fil %%
+![](https://64.media.tumblr.com/80fddbab5175dba5fd827968fd3ad886/e5cde90135c8fe90-93/s400x600/0e33b6993e3995fbe5ca276edde1b93b5cbd8963.pnj)
+%#7983a6%꒰%% ![](https://y2k.neocities.org/blinkiez/newbatch/peace.gif)%#7983a6% ꒱%% %#7983a6% *seven system hours . . . *%%
+-> [![](https://media.discordapp.net/attachments/1128345148695269499/1298580066380288010/ezgif-2-af56113de1.png?ex=671a146e&is=6718c2ee&hm=b19e4a36e6d6bdf9e41671751e8af23dd2c2e15c600f680d2296d262ffbe6bcd&=&format=webp&quality=lossless&width=125&height=125)]() ![](https://64.media.tumblr.com/4b790b83f62d87e956f4e0266e098a74/a99701de4660a168-66/s75x75_c1/412d7a3127374a6f1c81ec14b88a7f76d5610707.gifv) [![](https://media.discordapp.net/attachments/1128345148695269499/1298580066715828264/ezgif-2-a0dfad1b24.png?ex=671a146e&is=6718c2ee&hm=de35d3b57f7e166bafda7a8d2628fe2e76c0c70ed58ca9000931b98db28c2af6&=&format=webp&quality=lossless&width=125&height=125)]()<-
+***
+***
